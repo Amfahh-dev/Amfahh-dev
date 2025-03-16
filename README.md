@@ -2,7 +2,7 @@
 👀 I’m interested in:
 
 Coding cool projects and solving real-world problems.
-Singing and performing 
+ and performing 
 🌱 I’m currently learning:
 
 Advanced programming skills (because coding is my superpower!).
