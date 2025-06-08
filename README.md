@@ -1,4 +1,4 @@
-👋 Hi, I’m @Amfahh-dev, a 12-year-old coding enthusiast
+👋 Hi, I’m @Amfahh-dev, a 13-year-old coding enthusiast
 👀 I’m interested in:
 
 Coding cool projects and solving real-world problems.
