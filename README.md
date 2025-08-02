@@ -1,5 +1,5 @@
 👋 Hi, I’m @Amfahh-dev, a 13-year-old coding enthusiast
-👀 I’m interested in:
+ I’m interested in:
 
 Coding cool projects and solving real-world problems.
  and performing 
@@ -11,8 +11,6 @@ Storytelling and editing
 
 Fun coding projects, especially ones that inspire young creators.
 📫 How to reach me:
+email on amfahhjd@gmail.com
+ Pronouns: She/Her
 
-Drop me a DM on Instagram: @Amfrii
-😄 Pronouns: She/Her
-
-⚡ Fun fact: I’m a techie who can crack a joke, write a song, and debug code—all in one afternoon!
